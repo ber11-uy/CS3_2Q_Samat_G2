@@ -5,7 +5,7 @@
 
 **Group Members**
 
-Doculan, Kayle P.
+Doculan, Kayle B.
 
 Gamboa, Giovanni Roliz S.
 
