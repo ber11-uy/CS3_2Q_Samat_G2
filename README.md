@@ -1,7 +1,7 @@
 # CS3_2Q_Samat_G2
 # Hello, World!
 
-> *welcome to our repository where we stress over CS 3*
+***welcome to our repository where we stress over CS 3***
 
 **Group Members**
 
