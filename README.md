@@ -6,6 +6,8 @@
 **Group Members**
 
 Doculan, Kayle B.
+> clairo, lizzy mcalpine, and cortis fan
+> BBS ETHAN BENARES
 
 Gamboa, Giovanni Roliz S.
 > I like food and swimming, ball sports stuff... on some shakesphere.
